@@ -1,1 +1,0 @@
-# Latihan JC 6
